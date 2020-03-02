@@ -93,4 +93,4 @@ Now I need a place to hide away
 Oh I believe in yesterday
 Why she had to…
 
-Band: Beetles 
+Band: The Beetles 

@@ -71,6 +71,8 @@ Nothing really matters to me.
 
 Any way the wind blows.
 
+Band: Queen
+
 ##Yesterday
 
 Yesterday,
@@ -90,3 +92,5 @@ Love was such an easy game to play
 Now I need a place to hide away
 Oh I believe in yesterday
 Why she had to…
+
+Band: Beetles 
